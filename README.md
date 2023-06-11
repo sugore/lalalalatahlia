@@ -10,7 +10,7 @@
 
 ![](https://github.com/lalalalatahlia/lalalalatahlia/assets/132245487/5f74b2ba-14ed-4f10-b642-23df908b145f)
 ![](https://raining-starss.neocities.org/doot%20(3).png)
-![](https://github.com/lalalalatahlia/lalalalatahlia/assets/132245487/38bdb63e-357b-4e13-8b7e-d469855b30ba)
+![]([https://github.com/lalalalatahlia/lalalalatahlia/assets/132245487/38bdb63e-357b-4e13-8b7e-d469855b30ba](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/460adc04-b238-4aea-a9ed-9faabfd46f1f/d660yqk-8207375b-eabe-4a91-9a7a-4c8259626870.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzQ2MGFkYzA0LWIyMzgtNGFlYS1hOWVkLTlmYWFiZmQ0NmYxZlwvZDY2MHlxay04MjA3Mzc1Yi1lYWJlLTRhOTEtOWE3YS00YzgyNTk2MjY4NzAucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.jHnWDbwzHGBHbN7yC7-5hNMgVi_nDy8RwXvI-Tejik4))
 
 ![](https://raining-starss.neocities.org/garfpenis%20(5).gif)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/100810e5-5bdc-49c7-a2d4-4538a667d82c/d22b71a-fad87dbd-a168-41a4-933f-7bd6c20dc146.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzEwMDgxMGU1LTViZGMtNDljNy1hMmQ0LTQ1MzhhNjY3ZDgyY1wvZDIyYjcxYS1mYWQ4N2RiZC1hMTY4LTQxYTQtOTMzZi03YmQ2YzIwZGMxNDYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.e1jQQ70Ns4Gz0FffrZoOMYDRyrS7_ul7dwH8jeIfxAk)
