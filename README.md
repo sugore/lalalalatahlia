@@ -17,10 +17,7 @@
 ![](https://66.media.tumblr.com/72e2a56fffca7e490e6794aec1fbf17b/tumblr_pu0ajpcZQL1xwjivko9_100.png)
 ![](https://kichi.neocities.org/b/beegstampz23.gif)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/16a9d82a-a162-4982-b1eb-09954243b659/d82rhe0-681e97d0-b7b0-46b7-8ec8-7ff9343aa0cf.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzE2YTlkODJhLWExNjItNDk4Mi1iMWViLTA5OTU0MjQzYjY1OVwvZDgycmhlMC02ODFlOTdkMC1iN2IwLTQ2YjctOGVjOC03ZmY5MzQzYWEwY2YucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.KLe7rNMk7BwiW9PA0VWJig_HVQaSu1sj6TLYR8OSM2M)
-
-![](https://y2k.neocities.org/stamps/tumblr_pcagk9LdEg1wpplaao5_100.gif)
 ![](https://y2k.neocities.org/stamps/tumblr_inline_pf6lv0X40I1tjl8rj_500.png)
-
 
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b6fe0122-c988-4a77-b617-cc818fad3097/d1m3vwf-f0473483-25e3-450f-aeaf-dd0729f8a135.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2I2ZmUwMTIyLWM5ODgtNGE3Ny1iNjE3LWNjODE4ZmFkMzA5N1wvZDFtM3Z3Zi1mMDQ3MzQ4My0yNWUzLTQ1MGYtYWVhZi1kZDA3MjlmOGExMzUuanBnIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.FM_spFMEHqZLwdIAwF4RZO9GHkdPY-K2pQC6uiLlSUc)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/i/cf7344ab-d7a8-4dba-b634-c8a43de8114d/dbyg7tk-9e9e056d-ba74-4db7-8649-4eeb0d5e2067.png)
