@@ -1,1 +1,1 @@
-1[]([imagelink](https://www.deviantart.com/xxstamps/art/American-Flag-Stamp-124813918))
+![]([imagelink](https://www.deviantart.com/xxstamps/art/American-Flag-Stamp-124813918))
