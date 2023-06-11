@@ -1,6 +1,5 @@
    ![](https://66.media.tumblr.com/2666a08ace814d8578e7902d0ef55539/tumblr_ptf1mbWHfg1wclo4ko1_400.gif)
 
-![](https://raining-starss.neocities.org/blinkiefyle%20(62).gif)
 ![](https://raining-starss.neocities.org/goodieblink%20(27).gif)
 ![](https://raining-starss.neocities.org/388394%20(13).gif)
 ![](https://cdn.discordapp.com/attachments/1082227812875898920/1117335918827806812/blinkiesCafe-GH.gif)
