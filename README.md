@@ -20,5 +20,7 @@
 ![](https://66.media.tumblr.com/7ec3ba77a7be939f7d9b8aef375c069a/tumblr_pu05frwLkE1xwjivko5_100.gif)
 
 ![](https://66.media.tumblr.com/72e2a56fffca7e490e6794aec1fbf17b/tumblr_pu0ajpcZQL1xwjivko9_100.png)
+![](https://kichi.neocities.org/b/beegstampz23.gif)
+![](https://cdn.discordapp.com/attachments/1082227812875898920/1117329465471680543/hate.gif)
 
 ![](https://raining-starss.neocities.org/blink%20(7).jpg)
