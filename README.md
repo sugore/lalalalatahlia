@@ -2,7 +2,7 @@
 ![](https://raining-starss.neocities.org/goodieblink%20(27).gif)
 ![](https://raining-starss.neocities.org/388394%20(13).gif)
 
-![](![image](https://github.com/lalalalatahlia/lalalalatahlia/assets/132245487/5f74b2ba-14ed-4f10-b642-23df908b145f)
+![](https://github.com/lalalalatahlia/lalalalatahlia/assets/132245487/5f74b2ba-14ed-4f10-b642-23df908b145f)
 
 ![](https://y2k.neocities.org/stamps2/db13uc6-4f53ae41-d0a0-4447-a790-b1540ce55359.png)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/16a9d82a-a162-4982-b1eb-09954243b659/d82rhe0-681e97d0-b7b0-46b7-8ec8-7ff9343aa0cf.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzE2YTlkODJhLWExNjItNDk4Mi1iMWViLTA5OTU0MjQzYjY1OVwvZDgycmhlMC02ODFlOTdkMC1iN2IwLTQ2YjctOGVjOC03ZmY5MzQzYWEwY2YucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.KLe7rNMk7BwiW9PA0VWJig_HVQaSu1sj6TLYR8OSM2M)
