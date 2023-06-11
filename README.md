@@ -1,6 +1,7 @@
 ![](https://raining-starss.neocities.org/blinkiefyle%20(62).gif)
 ![](https://raining-starss.neocities.org/goodieblink%20(27).gif)
 ![](https://raining-starss.neocities.org/388394%20(13).gif)
+![](https://cdn.discordapp.com/attachments/1082227812875898920/1117335918827806812/blinkiesCafe-GH.gif)
 
 ![](https://github.com/lalalalatahlia/lalalalatahlia/assets/132245487/5f74b2ba-14ed-4f10-b642-23df908b145f)
 ![](https://raining-starss.neocities.org/doot%20(3).png)
