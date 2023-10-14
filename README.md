@@ -17,6 +17,7 @@ Tahlia ,, she/her  17
 
 <p align="center">
   whisper/use my guestbook to interact because im afk ALOT !! my laptop is fried 
+  
   no dni except for proshippers and just general weirdos Please GO AWAY !!!!!!!
   no boundaries you can do wtv you want, touch me hug me hump me kiss me hold me tenderly 
 </p>
