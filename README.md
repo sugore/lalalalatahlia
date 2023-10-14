@@ -17,3 +17,6 @@ wip ummmmm it'll look better later i promis...
   <img  src="http://fc05.deviantart.net/fs70/f/2011/341/0/d/purple_pokemon_sprite_divider_by_venesauroar-d4if3zj.png">
 </p>
 
+
+![](https://watermelon.crd.co/assets/images/gallery21/13943fcb.gif?v=2a41aca3)
+
