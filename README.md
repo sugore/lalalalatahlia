@@ -12,8 +12,10 @@ Tahlia ,, she/her  17
 <p align="center">
   wip ummmmm it'll look better later i promis..
   
+  ```diff
   <p align="center">
-  mostly on eng safe serv
+ - mostly on eng safe serv
+```
   
 
 <p align="center">
