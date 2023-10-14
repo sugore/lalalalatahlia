@@ -10,7 +10,7 @@ Tahlia ,, she/her  17
 </p>
 
 <p align="center">
-  wip ummmmm it'll look better later i promis..
+  WIP ummmmm it'll look better later i promis..
 
    <p align="center">
      mostly on eng safe serv
