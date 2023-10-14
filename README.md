@@ -22,9 +22,6 @@ Tahlia ,, she/her  17
 <p align="center">
 Main interests are Jjk, naruto, pokemon, and resident evil 
 
-<p align="center">
-  <img  src="http://fc05.deviantart.net/fs70/f/2011/341/0/d/purple_pokemon_sprite_divider_by_venesauroar-d4if3zj.png">
-</p> 
 
 <p align="center">
    <img src="https://watermelon.crd.co/assets/images/gallery21/13943fcb.gif?v=2a41aca3">  <img src="https://watermelon.crd.co/assets/images/gallery21/c78efcc4.gif?v=2a41aca3">  <img  src="https://watermelon.crd.co/assets/images/gallery21/f8637baf.gif?v=2a41aca3">  <img  src="https://cdn.discordapp.com/attachments/1082227812875898920/1117335918827806812/blinkiesCafe-GH.gif">
