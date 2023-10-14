@@ -21,7 +21,7 @@ Tahlia ,, she/her  17
   <p align="center">
 • no dni except for proshippers and just general weirdos Please GO AWAY !!!!!!! 
     <p align="center">
-• no boundaries you can do wtv you want, touch me hug me hump me kiss me hold me tenderly
+• no boundaries you can do wtv you want, touch me hug me hump me kiss me hold me tenderly idm
 
 <p align="center">
   <img  src="http://fc05.deviantart.net/fs70/f/2011/341/0/d/purple_pokemon_sprite_divider_by_venesauroar-d4if3zj.png">
@@ -29,4 +29,6 @@ Tahlia ,, she/her  17
 
 
 ![](https://watermelon.crd.co/assets/images/gallery21/13943fcb.gif?v=2a41aca3)
+
+****
 
