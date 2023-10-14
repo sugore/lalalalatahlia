@@ -11,5 +11,7 @@ Tahlia ,, she/her  17 <img  src="https://images-wixmp-ed30a86b8c4ca887773594c2.w
 
 
 
+<p align="center">
+  <img  src="http://fc05.deviantart.net/fs70/f/2011/341/0/d/purple_pokemon_sprite_divider_by_venesauroar-d4if3zj.png">
+</p>
 
-http://fc05.deviantart.net/fs70/f/2011/341/0/d/purple_pokemon_sprite_divider_by_venesauroar-d4if3zj.png    
