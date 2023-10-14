@@ -16,8 +16,9 @@ Tahlia ,, she/her  17
   mostly on eng safe serv
 
 <p align="center">
-  whisper/use my guestbook to interact because im afk ALOT !! my laptop is fried                                                  no dni except for proshippers and just general weirdos Please GO AWAY !!!!!!!                          no boundaries you can do wtv you want, touch me hug me hump me kiss me hold me tenderly 
-</p>
+ < whisper/use my guestbook to interact because im afk ALOT !! my laptop is fried
+  no dni except for proshippers and just general weirdos Please GO AWAY !!!!!!! 
+  no boundaries you can do wtv you want, touch me hug me hump me kiss me hold me tenderly /p>
 
 <p align="center">
   <img  src="http://fc05.deviantart.net/fs70/f/2011/341/0/d/purple_pokemon_sprite_divider_by_venesauroar-d4if3zj.png">
