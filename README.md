@@ -1,1 +1,1 @@
-![](https://media.tenor.com/G3LySJQZD7EAAAAd/sasuke-fortnite.gif)
+![](https://media.tenor.com/GE1Z5SaGDk4AAAAd/sasuke-sasuke-uchiha.gif)
