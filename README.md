@@ -28,7 +28,8 @@ Tahlia ,, she/her  17
 </p>
 
 <p align="center">
-![](https://watermelon.crd.co/assets/images/gallery21/13943fcb.gif?v=2a41aca3) ![](https://watermelon.crd.co/assets/images/gallery21/c78efcc4.gif?v=2a41aca3) ![](https://watermelon.crd.co/assets/images/gallery21/f8637baf.gif?v=2a41aca3) ![](https://cdn.discordapp.com/attachments/1082227812875898920/1117335918827806812/blinkiesCafe-GH.gif)
+   <img  src="https://watermelon.crd.co/assets/images/gallery21/13943fcb.gif?v=2a41aca3">  <img  src="https://watermelon.crd.co/assets/images/gallery21/c78efcc4.gif?v=2a41aca3">  <img  src="https://watermelon.crd.co/assets/images/gallery21/f8637baf.gif?v=2a41aca3">  <img  src="https://cdn.discordapp.com/attachments/1082227812875898920/1117335918827806812/blinkiesCafe-GH.gif">
+   
 
 ****
 
