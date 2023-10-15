@@ -7,14 +7,9 @@
 <p align="center">
 Tahlia ,, she/her  17 
 
-
-<p align="center">
-  WIP ummmmm it'll look better later i promis..
-
-   <p align="center">
+ <p align="center">
      mostly on eng safe serv
   
-
 <p align="center">
 • whisper/use my guestbook to interact because im afk ALOT !! my laptop is fried <br> • no dni except for proshippers and just general weirdos Please GO AWAY !!!!!!! <br> • no boundaries you can do wtv you want, touch me hug me hump me kiss me hold me tenderly idm
 
